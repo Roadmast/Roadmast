@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **siddamurthi789@gmail.com**
 
-- ⚡ Fun fact **I can't If I want to do**
+- ⚡ Fun fact **If I want to do anything, I won't stop**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
